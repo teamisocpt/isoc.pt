@@ -1,1 +1,0 @@
-# Repositório sosdigital.isoc.pt
